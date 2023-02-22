@@ -1,2 +1,3 @@
 # hello-world
-All media is blended no picture is perfect to you every picture is perfect to me
+nothing is perfect we all collect a new photo to see a new person to be
+## to finish and prospect 
